@@ -4,3 +4,6 @@ I put some of the plants that were growing near me in mason jars to see what kin
 ![image](https://github.com/Neobii/LE_Near-Natural-Quantizations__Neobii/blob/main/609BCDA6-D0DC-433E-AB5E-0E1C7F6DF601.jpeg)
 ![image](https://github.com/Neobii/LE_Near-Natural-Quantizations__Neobii/blob/main/0CEE2F7D-9B7C-463E-9834-6096E5A7BA28.jpeg)
 ![image](https://github.com/Neobii/LE_Near-Natural-Quantizations__Neobii/blob/main/AE2254AB-9650-4C2D-8A5A-E0A5ABA72A76.jpeg)
+
+## Books
+[Symbol and substance in japanese lacquer](https://www.amazon.com/Symbol-Substance-Japanese-Lacquer-Collection/dp/083480316X)
